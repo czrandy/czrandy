@@ -1,0 +1,2 @@
+# czrandy
+Sitemap CzRandySeo
